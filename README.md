@@ -7,5 +7,7 @@
 7일차 학습 https://cafe.naver.com/gilbutitbook/8082 <br/>
 8일차 학습 https://cafe.naver.com/gilbutitbook/8093 <br/>
 9일차 학습 https://cafe.naver.com/gilbutitbook/8169 <br/>
-10일차 학습 https://cafe.naver.com/gilbutitbook/8202
+10일차 학습 https://cafe.naver.com/gilbutitbook/8202 <br/>
+11일차 학습 https://cafe.naver.com/gilbutitbook/8423 <br/>
+12일차 학습 https://cafe.naver.com/gilbutitbook/8463
 </p>
